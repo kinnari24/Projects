@@ -22,6 +22,6 @@ A result-driven Software Engineer with over 7 years of experience in Android, Ja
 
 📫 **Let's Connect:**  
 - Email: kinnarimehta85@gmail.com  
-- LinkedIn: linkedin.com/in/kinnari-pandya-367478135
+- LinkedIn: [linkedin.com/in/kinnari-pandya-367478135](https://www.linkedin.com/in/kinnari-pandya-367478135/)
 
 🌟 **Fun Fact:** I thrive in multicultural environments and love solving technical challenges! 🚀
